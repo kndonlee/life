@@ -97,6 +97,8 @@ https://www.youtube.com/watch?v=8Jiv68V1dlo
 * other generations didn't have digital super villains
 
 
+# Advice to overcome villians
+
 * digital overload, too much info, too little time
    * how to learn faster and read faster to compensate
 
